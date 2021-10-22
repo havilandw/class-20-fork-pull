@@ -1,4 +1,5 @@
 # class-20-fork-pull
 
-Slarti suggestions
+
+what about electric cars -- better mileage by far!
 
